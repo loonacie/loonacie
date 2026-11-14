@@ -1,2 +1,2 @@
-<img align="center" src="https://media1.tenor.com/m/GHWj9jcLGc0AAAAd/loonac-dimofyy.gif"/>
+<p align="center"> <img src="https://media1.tenor.com/m/GHWj9jcLGc0AAAAd/loonac-dimofyy.gif"/>
 
